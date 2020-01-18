@@ -1,0 +1,2 @@
+# daidai
+Innocence, goodness, ignorance
